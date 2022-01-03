@@ -1,2 +1,2 @@
-# Ehfazi-wtaallmi-maana
+# ehfz-wtaallmi-maana
 للقرآن والعلوم الشرعية 
